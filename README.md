@@ -1,1 +1,1 @@
-# Tech-Layoffs-Analyst-Data-Analyst-Self-Learning-Project
+# Tech-Layoffs-Analyst | Data-Analyst-Self-Learning-Project
